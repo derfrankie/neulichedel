@@ -29,6 +29,6 @@ I figured that the confusion comes from the German dialect spoken in my home cou
 
 To be honest my whole life people had problems with my surname and I did get used to it pretty quickly. I found it to be a good thing - it helped me to not take me to seriously and accept that it's not the name that defines me but what I think and do 😄
 
-In that sense feel free to check out my real works and projects by follwing the link to my real website - https://frankie.bz  (you see I found a way to )
+In that sense feel free to check out my real works and projects by follwing the link to my real website - https://frankie.bz  (you see I found a way to make my name easier 😉 )
 
 
